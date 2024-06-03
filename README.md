@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning make a codes
 - 💞️ I’m looking to collaborate with my teachers
 - 📫 How to reach me viccavalcanti0725@gmail.com
-- 😄 Pronouns: ela/dela
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: i work on restaurant
 
 <!---
